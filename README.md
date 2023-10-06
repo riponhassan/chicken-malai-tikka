@@ -1,4 +1,5 @@
 # chicken-malai-tikka (kebab/kabab)
+https://1.bp.blogspot.com/-5UbSlbdzCCE/X39xWpKvpHI/AAAAAAAARGw/1tTZZgikm5Y35ya6x3H_OsKvcRHHUMNwwCLcBGAsYHQ/s1280/Chicken%2Bmalai%2Btikka.jpg
 Malai tikka or kabab is a soft, juicy and creamy chicken recipe made with cheese, creame and cashew nuts based marination.
 Chicken malai tikka also known as murgh malai kebab is a rich kabab of mughlai cuisines. Boneless chicken pieces are marinated in a cheese, cashew and cream based marination with a small amount of yogurt. It has a distinct and rich flavour of elaichi (green cardamom) powder.
 This malai tikka is best to make with chicken breast or chicken supreme pieces. Otherwise you can use chicken leg boneless as well. Tikka means boneless chunks of meats and malai for cream so the term chicken malai tikka means creamy boneless chicken.
